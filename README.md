@@ -17,3 +17,6 @@ As its name suggests, this version of the app focuses specifically on accessing 
 PaydayR is constantly working through innovative initiatives to deliver the most user-friendly experience in getting payday loans online, as well as  developing the tools and resources needed for consumers to make smarter financial choices.
 
 For more information on the open source Payday Loans Online app and other projects from PaydayR, go to http://paydayr.com or connect with us on [LinkedIn](https://www.linkedin.com/company/paydayr)
+
+
+Payday Loans are easy to get from payday loans providing companies. It just needs to submit an application with some formalities and needy people can get them easily. People can pay back these loans on installments. That’s how it doesn’t disturb the financial budget of the month. Payday Loans Now( https://www.paydayloansnow.co.uk ) is also providing the services of payday loans on easy terms and conditions.
